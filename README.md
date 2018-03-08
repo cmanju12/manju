@@ -1,2 +1,3 @@
 # manju
 manju practise repo
+JHFYKDLISFGSRKUTDIKED[';HYOITDCO,IVMYGIXSCT;CPV.7YBU
